@@ -1,4 +1,4 @@
-i make shit. some of it works.
+i make stuff. some of it works on purpose.
 
 ### stuff that's public
 
